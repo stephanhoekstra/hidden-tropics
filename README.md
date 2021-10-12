@@ -15,7 +15,6 @@ Luis Radio, Stefano Guerra - Bazaar (Original Mix) [Groovebom Records]
 
 
 # Tracks to check out 
-https://www.junodownload.com/products/hot-digits-year-seven/5073858-02/
 https://razor-n-tape.fanlink.to/LoveVibration
 
 #Tracks wishlist
