@@ -21,6 +21,12 @@ OMAR S Psychotic Fotosynthesis
 
 
 # Tracks to check out 
+https://www.junodownload.com/search/?q%5Ball%5D%5B%5D=don+turi
+Kitsune Musique
+
+
+
+
 Sauco - Delicious
 Mannix - Fistrik
 Oldchap - Pasttime Paradise
